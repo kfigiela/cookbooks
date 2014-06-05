@@ -21,3 +21,7 @@ Do garnka/miski wrzucamy po kolei:
 6. szczyptę soli.
 
 Całość należy wymieszać, ewentualnie lekko ubić (np. widelcem) i hop na patelnie. Smażymy koniecznie na maśle. Dobrym dodatkiem jest chleb z masłem ;)
+
+Efekt może wyglądać tak:
+
+![Omlet](https://dl.dropboxusercontent.com/u/81819/omlet.jpg)
