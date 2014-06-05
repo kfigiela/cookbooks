@@ -7,7 +7,9 @@
 * Kolendra (ziarna)
 * Natka pietruszki
 * Sól
-* Czosnek
+* Czosnek (2-3 ząbki)
+
+Wychodzą z tego okolo 2 omlety (na dużą 28 cm patelnię).
 
 ## Procedura
 
